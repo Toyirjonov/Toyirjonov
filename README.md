@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Toyirjonov<br>💻 Passionate about coding.<br><br>🎵 Love working with music—it’s my main source of inspiration.<br><br>📚 Currently in 9th grade and exploring the world of IT.<br><br>📫 Reach me at: shoxruxmirzo12345@mail.ru<br><br>⚡ Fun fact: I believe code and music can change the world!
+👋 Hi, I’m @Toyirjonov<br>💻 Passionate about coding.<br><br>🎵 Love working with music—it’s my main source of inspiration.<br><br>📚 Currently in 9th grade and exploring the world of IT.<br><br>📫 Reach me at: shoxruxmirzo134@gmail.com<br><br>⚡ Fun fact: I believe code and music can change the world!
 
 
 ## 🌐 Socials:
